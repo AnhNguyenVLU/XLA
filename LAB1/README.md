@@ -1,0 +1,3 @@
+# BÀI LAB 1
+
+HÔM NAY CHÚNG TA HỌC LAB 1 ZUI QUÁ LÀ ZUI
